@@ -1,6 +1,6 @@
 **Case Study: Porter Airlines – Value Innovation Strategy in the Short-Haul Aviation Market**
 
-**Case Writer: Jim Keen**
+**Case Writer: Ying HUANG**
 
 **Background and Industry Dilemma: The Service Paradox**
 
