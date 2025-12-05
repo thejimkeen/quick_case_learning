@@ -1,4 +1,3 @@
-Here is the English translation of the commercial story, maintaining the same structure, punchy tone, and "golden sentences" as the Chinese version.
 
 ***
 
